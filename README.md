@@ -24,8 +24,7 @@
 
 Mateo Rojas:
 
-Candela Kitajgrocki:
-
+Candela Kitajgrocki: tengo 18 años, me gusta pasar tiempo al aire libre y con amigos.
 Faustino Correa: tengo 18 años, me gustan los videojuegos y la naturaleza.
 
 
